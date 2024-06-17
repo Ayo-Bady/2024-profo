@@ -1,4 +1,4 @@
-[Feb.16th.Missour (1).txt](https://github.com/user-attachments/files/15863281/Feb.16th.Missour.1.txt)![Image (32)](https://github.com/Ayo-Bady/2024-profo/assets/172160346/9977121c-49e6-4573-9368-4e4e3142e726)
+
 
 ![Image (31)](https://github.com/Ayo-Bady/2024-profo/assets/172160346/274c60f0-ac1a-4b67-9fcb-b0faa25fbf9e)
 
@@ -10,4 +10,3 @@
 
 
 
-[ The legislatuvre  (1).txt…]()
