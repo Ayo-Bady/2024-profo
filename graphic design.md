@@ -15,5 +15,4 @@
 
 ![image](https://github.com/Ayo-Bady/2024-profo/assets/172160346/f2c1ba37-bd5b-4726-bfa9-83b882ec99f8)
 
-![image](![image](https://github.com/user-attachments/assets/7717591e-6840-4395-82db-bebeb4019e68)
-)
+![image](https://github.com/user-attachments/assets/7717591e-6840-4395-82db-bebeb4019e68)
